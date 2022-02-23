@@ -8,6 +8,8 @@
 - ⚜️ Tengo un proyecto en mente, que es, forjar mí propia comunidad en las redes
 - 🎯 Y mí objetivo aquí, en las redes, es tratar de sacarte una linda sonrisa!
 
+- 🟣 Mí Canal de Twitch: https://www.twitch.tv/pepitomengechefran
+
 <!---
 FrancoCorrea1612/FrancoCorrea1612 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
